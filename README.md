@@ -4,4 +4,4 @@ I am Saiful Islam Rasel - a full stack software engineer, competitive programmer
 > ## 📫 How to reach me 😇: 
 - Email me at : raselcse97@gmail.com
 - Find me at linekdin : https://linkedin.com/in/saiful-islam-rasel
-- Mobile me at : (+88) 01840167116
+- Call me at : (+88) 01840167116
